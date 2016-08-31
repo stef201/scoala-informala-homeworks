@@ -1,1 +1,1 @@
-# scoala-informala-homeworks
+# scoala-informala-homeworks Stefan Negotei
